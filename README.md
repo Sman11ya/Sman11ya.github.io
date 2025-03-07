@@ -1,9 +1,9 @@
 # 🌝 Samantha or Sam or Ye Zhang
 
 ## ℹ️ Sam's homepage
-Junior undergraduate at Sun Yat-sen University
+undergraduate at Sun Yat-sen University
 
 ## 📧 email
-zhangy2386@mail2.sysu.edu.cn
+lenovo210726@outlook.com
 
 ## To Be Continued...
